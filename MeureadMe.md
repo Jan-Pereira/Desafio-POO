@@ -13,7 +13,8 @@ Tenho me dedicado aos estudos...
 
 Gostei muito curso da **DIO**!
 
-acompanei as aulas da camila para realizar esse projeto
+acompanhei as aulas da camila para realizar esse projeto
+
 
 
 
